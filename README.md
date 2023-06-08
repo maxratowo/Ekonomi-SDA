@@ -1,2 +1,2 @@
 # Ekonomi-SDA
-Kumpulan Surat Ekonomi &amp; SDA Setda Kota PAlu
+Kumpulan Surat Ekonomi &amp; SDA Setda Kota Palu
